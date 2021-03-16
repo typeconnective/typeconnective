@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @typeconnective
+- 📫 Contact typeconnective@gmail.com
